@@ -95,3 +95,6 @@ The author is not responsible for any feelings of nihilism, anger, or social ada
 ---
 
 > "You live by this, you die by this, you find joy in this, you suffer in this. But this is just a game, a game written by genes and memes. Wake up."
+
+---
+> **Note**: This translation is for reference only. In case of any discrepancy, the original Chinese version shall prevail.
